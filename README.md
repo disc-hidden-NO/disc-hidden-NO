@@ -1,11 +1,13 @@
-☆ Sebastian — vidgame acc!
+☆ Sebastian, videogame acc
 \
 ☆ She/her
 \
-☆ **Drawing, Sonic, plushies, dolls**
+☆ **Drawing, Sonic, plushies, sticknotes**
 \
-☆ [**fict comf**](!) Shadow, Sonic, Fleetway Sonic, Sir Lancelot Shadow, Neo metal Sonic, Silver, Wave, Rouge
+☆ [**fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Sir Lancelot Shadow, Neo metal Sonic, Silver, Wave, Rouge
 \
 ☆ Lithromantic straight and autistic
 \
 ☆ [**please glide to hell.**](!) envy, jealousy, strong-punching, glass breaks
+
+![](https://media.tenor.com/fwRdoejcLPAAAAAj/shadow-the-hedgehog-shadow.gif)
