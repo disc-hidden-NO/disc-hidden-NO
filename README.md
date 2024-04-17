@@ -1,4 +1,4 @@
-☆ Sebastian
+☆ Sebastian — vidgame acc!
 \
 ☆ She / her
 \
