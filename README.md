@@ -1,11 +1,11 @@
 ☆ Sebastian — vidgame acc!
 \
-☆ She / her
+☆ She/her
 \
 ☆ **Drawing, Sonic, plushies, dolls**
 \
-☆ [**slingshot fictkins**](!) Shadow the hedgehog, Belle the tinkerer, Kit the fennec, Yowane Haku, Hatsune Miku
+☆ [**fict comf**](!) Shadow, Sonic, Fleetway Sonic, Sir Lancelot Shadow, Neo metal Sonic, Silver, Wave, Rouge
 \
-☆ Aromantic and autistic
+☆ Lithromantic straight and autistic
 \
-☆ [**please die.**](!) heartburning, jealousy, strong-punching, glass breaking
+☆ [**please glide to hell.**](!) envy, jealousy, strong-punching, glass breaks
