@@ -1,7 +1,5 @@
 ★ Tis is videogame account
 \
-★ She/her nns
-\
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
 ★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
