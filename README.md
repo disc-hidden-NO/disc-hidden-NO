@@ -1,13 +1,13 @@
-☆ Sebastian, videogame acc
+★ Tis is videogame account
 \
-☆ She/her
+★ She/her nns
 \
-☆ **Drawing, Sonic, plushies, sticknotes**
+★ **Drawing, Sonic, plushies, sticknotes**
 \
-☆ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
+★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
-☆ Straight lithromantic
+★ [**disorders**](!) APD, Paranoia, CDD+Rett Autism. Do not erasure me since I appear shy or stupid public speaking.
 \
-☆ [**Xtra**](!) At disorder of APD, Paranoia and CDD+Rett Autism. People been mistaken I am shy in public speaking. Please dont erasure my disablity.
+★ Discord = DNIUF = **Selective permission**
 
 ![gif](https://media1.tenor.com/m/6yZhcF9NJHgAAAAd/sonic-x-shadow-sonic-prime.gif)
