@@ -2,10 +2,12 @@
 \
 ★ M' name's here Epel / Bunny / Axel I use different names only apps I perusal.
 \
+★ Videogame account
+\
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
 ★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
-★ [**Disorders**](!) APD, Paranoia, CDD+Rett Autism, Aromantic, Straight
+★ [**Disorders**](!) APD, Paranoia, CDD+Rett Autism, I appear shy / unsocial. I'm aromantic and straight.
 \
 ★ Discord = **Selective permission**
