@@ -8,6 +8,6 @@
 \
 ★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
-★ [**disorders**](!) APD, Paranoia, CDD+Rett Autism. Do not erasure me since I appear shy or stupid public speaking.
+★ [**Disorders**](!) APD, Paranoia, CDD+Rett Autism. Do not erasure me since I appear shy or stupid public speaking.
 \
 ★ Discord = **Selective permission**
