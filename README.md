@@ -8,10 +8,10 @@
 \
 ★ I have moderate paranoia and APD!
 \
-★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
+★ [**Fict comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
 ★ [**Fict kin**](!) Shadow, Belle, Kit
 \
-★ [**Animal kin**](!) Pests, Hedgehogs
+★ [**Animal kin**](!) Hedgehogs, Cats, Ostriches
 \
-★ Discord = **Selective permission**
+★ Discord + other = **Selective permission**
