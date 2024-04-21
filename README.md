@@ -6,6 +6,8 @@
 \
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
+★ I have CDD autism, paranoia and APD
+\
 ★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
 ★ [**Fict kin**](!) Shadow, Belle, Kit
