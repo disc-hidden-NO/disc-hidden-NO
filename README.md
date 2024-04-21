@@ -8,6 +8,8 @@
 \
 ★ [**Fict comfort**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
-★ [**Disorders**](!) APD, Paranoia, CDD+Rett Autism, I appear shy / unsocial. I'm aromantic and straight.
+★ [**Fict kin**](!) Shadow, Belle, Kit
+\
+★ [**Animal kin**](!) Pests, Hedgehogs
 \
 ★ Discord = **Selective permission**
