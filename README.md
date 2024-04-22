@@ -6,12 +6,12 @@
 \
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
-★ I am autistic paranoid and APD!
+★ I am autistic SM+APD paranoid! Understand if I'm loved n verbally reasurred is important.
 \
 ★ [**Fict comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
-★ [**Fict kin**](!) Shadow, Belle, Kit
+★ [**Fict kins**](!) Shadow, Belle, Kit
 \
-★ [**Animal kin**](!) Hedgehogs, Cats, Ostriches
+★ [**Animal kins**](!) Hedgehogs, Ostriches
 \
-★ Discord + other = **Selective permission**
+★ Discord + other = **also NO**
