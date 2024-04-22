@@ -6,7 +6,7 @@
 \
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
-★ I have moderate paranoia and APD!
+★ I am autistic paranoid and APD!
 \
 ★ [**Fict comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
