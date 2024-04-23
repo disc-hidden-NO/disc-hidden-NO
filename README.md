@@ -8,10 +8,10 @@
 \
 ★ I am autistic SM+APD paranoid
 \
-★ [**Fict comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
+★ [**Comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
-★ [**Fict kins**](!) Shadow, Belle, Kit
+★ [**Fictkin**](!) Shadow, Kit
 \
-★ [**Animal kins**](!) Hedgehogs, Ostriches
+★ [**Animal kin**](!) Hedgehogs, Pests, Ostriches
 \
 ★ Discord + other = **also NO**
