@@ -1,5 +1,5 @@
-![image](https://media.discordapp.net/attachments/1196764336656502797/1232291526261080145/Untitled80_20240423182610.png?ex=6628ec6a&is=66279aea&hm=c3e7c6090935d8e8d692ec04516a70405107a87a36ea4125ad8d6efdfdd4b156&)
-\
+<p align="center"> <img src="https://media.discordapp.net/attachments/1196764336656502797/1232322229711274087/Untitled76_20240423202435.png?ex=66290903&is=6627b783&hm=e8bbbd46d25a1f330dbb7ff78a151b04a2059f53e42e3fe06ce23ed5f233804f&"<width="220" height="220">
+
 ★ M' name's here Epel / Bunny / Axel I use different names only apps I perusal.
 \
 ★ Videogame account
