@@ -13,5 +13,5 @@
 ★ [**Animal kins**](!) Hedgehogs, Ostriches
 \
 ★ Discord + other = **also NO**
-\
-![gif](https://github.com/disc-hidden-NO/disc-hidden-NO/assets/167191879/604a55f9-6355-445f-aedd-e7b4675c0311)
+
+![gif](https://github.com/disc-hidden-NO/disc-hidden-NO/assets/167191879/a871cf3f-3f9a-4473-8d83-95c21e1fc3f1)
