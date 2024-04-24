@@ -8,7 +8,7 @@
 \
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
-★ I am autistic SM+APD paranoid
+★ I am ADHD CDD+APD paranoid
 \
 ★ [**Comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
