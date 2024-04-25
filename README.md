@@ -8,7 +8,7 @@
 \
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
-★ I am ADHD autism CDD+APD paranoid
+★ I am ADHD or other not shy in public speaking
 \
 ★ [**Comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
