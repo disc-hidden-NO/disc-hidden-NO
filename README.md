@@ -4,11 +4,9 @@
 
 ★ M' name's here Epel / Bunny / Axel I use different names only apps I perusal.
 \
-★ Videogame account
-\
 ★ **Drawing, Sonic, plushies, sticknotes**
 \
-★ I am ADHD or other not shy in public speaking
+★ I am ADHD other not shy in public speaking
 \
 ★ [**Comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge
 \
