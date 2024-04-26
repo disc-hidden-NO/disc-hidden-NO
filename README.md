@@ -9,3 +9,5 @@
 ★ _**Comf**_ Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge _**Hearttype**_ Shadow◞ Kit _**Animal kin**_ Hedgehogs◞ Pests◞ Ostriches
 
 ★ Discord + other = **also NO**
+
+(cool layout.. ya think?)
