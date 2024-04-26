@@ -5,7 +5,6 @@
 <p align="cenrer">
 ★ M’ name’s Epel / Bunny / Axel I use diffetent names only apps I perusal ADHDic and other◞ I like drawing◞ and sonic plushies
 
-★ [**Comf**](!) Shadow, Sonic, Fleetway Sonic, Silver, Wave, Rouge [**Fictkin**](!) Shadow, Kit [**Animal kin**](!) Hedgehogs, Pests, Ostriches
+★ [**Comf**](!) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave, Rouge [**Fictkin**](!) Shadow◞  Kit [**Animal kin**](!) Hedgehogs◞ Pests◞ Ostriches
 
 ★ Discord + other = **also NO**
-</p>
