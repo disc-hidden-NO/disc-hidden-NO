@@ -1,3 +1,5 @@
+(awesome layout ya think?)
+
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1196764336656502797/1232949457168105543/Untitled84_20240425140045.png?ex=662b5129&is=6629ffa9&hm=527b14c0749a2400700fade083fd5d2f3bd38e284faba573d9482384ec4adf8a&"<width="197" height="197">
 </p>
@@ -9,5 +11,3 @@ linksㅤ[**rentry**](https://rentry.co/rbyi1234)ㅤ[**repl coding**](https://rep
 ★ [**comf**](https://fkin.carrd.co/#two) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge [**hearttype/memory**](https://fkin.carrd.co/#two) Shadow◞ Kit [**animal kin**](https://fkin.carrd.co/#two) Hedgehogs◞ Ostriches
 
 ★ Discord + other = **also NO**
-
-(cool layout.. ya think?)
