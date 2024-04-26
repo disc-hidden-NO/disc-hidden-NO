@@ -6,7 +6,7 @@
 
 ★ M’ name’s Epel / Bunny / Axel I use diffetent names only apps I perusal◞ ADHDic and other◞ I like drawing and sonic plushies ♡ Th's is my videogame account you've entered
 
-★ _**Comf**_ Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge _**Hearttype**_ Shadow◞ Kit _**Animal kin**_ Hedgehogs◞ Pests◞ Ostriches
+★ [**comf**](!) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge [**hearttype/memory**](!) Shadow◞ Kit [**animal kin**](!) Hedgehogs◞ Ostriches
 
 ★ Discord + other = **also NO**
 
