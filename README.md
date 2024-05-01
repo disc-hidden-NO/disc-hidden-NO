@@ -1,8 +1,8 @@
 
-linksㅤ[**rentry**](https://rentry.co/rbyi1234)ㅤ[**repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)ㅤ[**fckin term**](https://fkin.carrd.co/#two)
+linksㅤ[**rentry**](https://rentry.co/rbyi1234)ㅤ[**repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)ㅤ[**fickin info**](https://fkin.carrd.co/#two)
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1196764336656502797/1232949457168105543/Untitled84_20240425140045.png?ex=662b5129&is=6629ffa9&hm=527b14c0749a2400700fade083fd5d2f3bd38e284faba573d9482384ec4adf8a&"<width="197" height="197">
+<img src="https://media.discordapp.net/attachments/1196764336656502797/1235084323087192154/Untitled84_20240501112344.png?ex=66331569&is=6631c3e9&hm=6bd164d9a8406dbb8315a99625dd4f88f9e62f8238cb7c362222a6a920fb7bfd&"<width="197" height="197">
 </p>
 
 ★ This is my videogame account hellok
