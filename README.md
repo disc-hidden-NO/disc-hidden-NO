@@ -6,8 +6,8 @@
 
 ★ M’ name’s Epel / Bunny / Axel I use diffetent names only apps I perusal◞ ADHDic and other◞ I like drawing and sonic plushies
 
-★ [**Read fkin terms**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kintype**](https://fkin.carrd.co/) Shadow◞ Helen◞ Sonic [**Syn**](https://fkin.carrd.co/) Kit [**Animal kin**](https://fkin.carrd.co/) Hedgehogs◞ Ostriches
+★ [**Repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)
+
+★ [**Read fkin terms**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kintype**](https://fkin.carrd.co/) Shadow◞ Helen◞ Sonic [**Syn**](https://fkin.carrd.co/) Kit
 
 ★ Discord + other = **also NO**
-
-★ [**Repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)
