@@ -8,6 +8,6 @@
 
 ★ [**Repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)
 
-★ [**Read fkin terms**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kinmem**](https://fkin.carrd.co/) Shadow◞ Helen◞ Sonic [**Syn**](https://fkin.carrd.co/) Kit
+★ [**Read fkin terms**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**Syn**](https://fkin.carrd.co/) Kit
 
 ★ Discord + other = **also NO**
