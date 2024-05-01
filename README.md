@@ -1,13 +1,13 @@
-[**rentry**](https://rentry.co/rbyi1234)ㅤ[**repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)ㅤ[**fkin info**](https://fkin.carrd.co/#two)ㅤ < links
-
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1196764336656502797/1235084323087192154/Untitled84_20240501112344.png?ex=66331569&is=6631c3e9&hm=6bd164d9a8406dbb8315a99625dd4f88f9e62f8238cb7c362222a6a920fb7bfd&"<width="197" height="197">
 </p>
 
-★ This is my videogame account hello
+★ This is my videogame account and helloo
 
 ★ M’ name’s Epel / Bunny / Axel I use diffetent names only apps I perusal◞ ADHDic and other◞ I like drawing and sonic plushies
 
-★ [**comf**](https://fkin.carrd.co/#two) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**hearttype/memory**](https://fkin.carrd.co/#two) Shadow◞ Kit [**animal kin**](https://fkin.carrd.co/#two) Hedgehogs◞ Ostriches
+★ [**Read fkin terms**](https://fkin.carrd.co/#two)! _**Comf**_ Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman _**Hearttype**_ Shadow◞ Kit _**Animal kin**_ Hedgehogs◞ Ostriches
 
 ★ Discord + other = **also NO**
+
+★ [**Repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)
