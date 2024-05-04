@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1196764336656502797/1235084323087192154/Untitled84_20240501112344.png?ex=66331569&is=6631c3e9&hm=6bd164d9a8406dbb8315a99625dd4f88f9e62f8238cb7c362222a6a920fb7bfd&"<width="197" height="197">
+<img src="https://media.discordapp.net/attachments/1196764336656502797/1236439885204951071/Untitled84_20240505051018.png?ex=663803e0&is=6636b260&hm=af15cb660ac8fdc84d56427023bb9211a331a24630fb4c1be6db9a28c7ff6c0f&"<width="197" height="197">
 </p>
 
 ★ This is my videogame account and helloo
