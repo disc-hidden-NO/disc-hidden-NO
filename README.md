@@ -11,3 +11,5 @@
 ★ [**Read fkin terms**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**Syn**](https://fkin.carrd.co/) Kit
 
 ★ Discord + other = **also NO**
+
+![image](https://media.discordapp.net/attachments/1196764336656502797/1232948092618149888/Untitled84_20240425135345.png?ex=6637d624&is=663684a4&hm=9004c60598f60da25959232b3fc9e3d1be9065f81eab9817159d37b4ff841d67&)
