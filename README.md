@@ -8,4 +8,4 @@
 
 ★ [**fkin terms link**](https://fkin.carrd.co/#two)! [**comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**syn**](https://fkin.carrd.co/) Kit
 
-★ Discord + other = **also NO**
+★ This is my gtihub videogame account! Discord + other = **also NO**
