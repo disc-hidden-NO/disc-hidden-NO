@@ -6,10 +6,6 @@
 
 ★ M’ name’s Epel / Bunny / Axel I use diffetent names only apps I perusal◞ ADHDic and other◞ I like drawing and sonic plushies
 
-★ This is my videogame account and helloo
-
-★ Tonetag indicators neoprns confuses me
-
 ★ [**Fkin terms link**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**Syn**](https://fkin.carrd.co/) Kit
 
 ★ Discord + other = **also NO**
