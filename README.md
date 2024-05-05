@@ -8,7 +8,7 @@
 
 ★ This is my videogame account and helloo
 
-★ Tonetag indicators neoprns confuses me◞ and please read my RENTRY before interacting◞ u can send some drawings on my strawpage
+★ Tonetag indicators neoprns confuses me
 
 ★ [**Fkin terms link**](https://fkin.carrd.co/#two)! [**Comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**Kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**Syn**](https://fkin.carrd.co/) Kit
 
