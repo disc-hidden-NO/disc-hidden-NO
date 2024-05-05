@@ -1,7 +1,7 @@
 ★ [**Repl coding**](https://replit.com/@sebastiansis/junkiiistink#main.py)ㅤ[**Straw.page**](https://doodlwpls.straw.page/)ㅤ[**Playlist**](https://youtube.com/playlist?list=PLV8zq4u5blMHSdU8bdZQM9WYBLP3eWGBc&feature=shared)
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1196764336656502797/1236500866815623199/Untitled84_20240505091249.png?ex=66383cab&is=6636eb2b&hm=4ca19644b3b660dee8acf22bf2b8fc5dddd1e8d0e9a4e2904ba7404683b8bfaa&"<width="197" height="197">
+<img src="https://media.discordapp.net/attachments/1196764336656502797/1236503571017760768/Untitled84_20240505092330.png?ex=66383f30&is=6636edb0&hm=66b6f523a042f78a24e737d708afa08d0715dd4105c97720da888dcc1b66e28e&"<width="197" height="197">
 </p>
 
 ★ This is my videogame account and helloo
