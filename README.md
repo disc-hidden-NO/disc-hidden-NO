@@ -10,4 +10,4 @@
 
 ★ [**repl 1**](https://replit.com/@sebastiansis/littleetest)ㅤ[**repl 2**](https://replit.com/@sebastiansis/eggsuuu)ㅤcodings
 
-★ Discord + other = NO and never! Dont forget my rentry
+★ Discord + other = NO and hidden
