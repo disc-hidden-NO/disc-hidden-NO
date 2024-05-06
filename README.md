@@ -10,4 +10,4 @@
 
 ★ This is my gtihub videogame account! But discord + other = NO and never
 
-★ [**repl 1**](https://replit.com/@sebastiansis/littleetest)ㅤ[repl 2](https://replit.com/@sebastiansis/eggsuuu)ㅤcodings
+★ [**repl 1**](https://replit.com/@sebastiansis/littleetest)ㅤ[**repl 2**](https://replit.com/@sebastiansis/eggsuuu)ㅤcodings
