@@ -8,6 +8,6 @@
 
 ★ [**fkin terms link**](https://fkin.carrd.co/#two)! [**comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**syn**](https://fkin.carrd.co/) Kit
 
-★ [**repl 1**](https://replit.com/@sebastiansis/littleetest)ㅤ[**repl 2**](https://replit.com/@sebastiansis/eggsuuu)ㅤ[**repl 3**](https://replit.com/@sebastiansis/plushiyii)ㅤcodings!
+★ [**repl 1**](https://replit.com/@sebastiansis/littleetest) - spamㅤ[**repl 2**](https://replit.com/@sebastiansis/eggsuuu) - capture yippeeㅤ[**repl 3**](https://replit.com/@sebastiansis/plushiyii) - shopping with a catㅤ< codings!
 
 ★ Discord + other = NO and hidden
