@@ -8,6 +8,6 @@
 
 ★ [**fkin terms link**](https://fkin.carrd.co/#two)! [**comf**](https://fkin.carrd.co/) Shadow◞ Sonic◞ Fleetway Sonic◞ Silver◞ Wave◞ Rouge◞ Sage◞ Eggman [**kinmem**](https://fkin.carrd.co/) Shadow◞ Helen [**syn**](https://fkin.carrd.co/) Kit
 
-★ codings! [**repl 2**](https://replit.com/@sebastiansis/eggsuuu)◞ [**repl 3**](https://replit.com/@sebastiansis/plushiyii) beginner ones thought I could do harder but soon
+★ codings! [**repl 1**](https://replit.com/@sebastiansis/eggsuuu)◞ [**repl 2**](https://replit.com/@sebastiansis/plushiyii) beginner ones thought I could do harder but soon
 
 ★ Discord + other = NO and hidden
