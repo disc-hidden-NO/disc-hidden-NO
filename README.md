@@ -8,6 +8,6 @@
 
 𑁘୧ Little [**repl 1**](https://replit.com/@sebastiansis/eggsuuu) [**repl 2**](https://replit.com/@sebastiansis/plushiyii) codings simple ones
 
-𑁘୧ [**fkin terms link**](https://fkin.carrd.co/#two)! I kinmem as Shadow while in Sonic main
+𑁘୧ [**fkin terms link**](https://fkin.carrd.co/#two)! I kinmem as Shadow, Helen, syn as Kit while in Sonic main I am also very sticky and cling!
 
 𑁘୧ Discord + other are NO and hidden
