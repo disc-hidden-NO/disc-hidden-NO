@@ -5,6 +5,9 @@
 </p>
 
 ㅤ𑁘୧ㅤM’ name’s Epel / Bunny / Axel I use diffetent names only apps I perusal, ADHDic and other
+\
 ㅤ𑁘୧ㅤLittle [**repl 1**](https://replit.com/@sebastiansis/eggsuuu), [**repl 2**](https://replit.com/@sebastiansis/plushiyii) codings simple ones
+\
 ㅤ𑁘୧ㅤ[**fkin terms link**](https://fkin.carrd.co/#two)! I kinmem as Shadow, Helen, syn as Kit while in Sonic main I am also very sticky and cling
+\
 ㅤ𑁘୧ㅤDiscord + other are NO and hidden
