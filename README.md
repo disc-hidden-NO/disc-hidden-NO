@@ -5,9 +5,9 @@
 
 ㅤ𑁘୧ㅤCall me Furu or frolic grass ADHDic autistic MDD and other
 \
-ㅤ𑁘୧ㅤI made simple [coding](https://replit.com/@sebastiansis/twinkl) hee!!
+ㅤ𑁘୧ㅤI made simple [**coding**](https://replit.com/@sebastiansis/twinkl) hee!!
 \
-ㅤ𑁘୧ㅤI [kinmem](https://fkin.carrd.co/#two) as Shadow, Helen, [syn](https://fkin.carrd.co/#two) as Kit while in Sonic main usually on cosplaying games very sticky and clingy
+ㅤ𑁘୧ㅤI [**kinmem**](https://fkin.carrd.co/#two) as Shadow, Helen, [**syn**](https://fkin.carrd.co/#two) as Kit while in Sonic main usually on cosplaying games very sticky and clingy
 \
 ㅤ𑁘୧ㅤDiscord + other are NO and hidden
 ***
