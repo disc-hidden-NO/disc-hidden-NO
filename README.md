@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1196764336656502797/1241297280850727002/Untitled84_20240518145141.png?ex=6649afad&is=66485e2d&hm=f637998f113378276847281772941bb813b07f79673a3576b096dad1c544493e&"<width="199" height="199">
+<img src="https://media.discordapp.net/attachments/1196764336656502797/1241688201559539732/Untitled84_20240519164432.png?ex=664b1bc0&is=6649ca40&hm=5a5862d37846d507cd5860b4762f53fe09c32c06c18af8287e294abb6f6ad73d&"<width="199" height="199">
 </p>
 
 ㅤ𑁘୧ㅤCall me Furu or ferulic grass ADHDic autistic MDD and other
