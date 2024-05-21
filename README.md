@@ -8,6 +8,6 @@
 \
 ㅤ☆ㅤMDD, AUDHD, and paranoia not kindly IRLs!
 \
-ㅤ☆ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow, Helen, [**SYN**](https://fkin.carrd.co/#two) as Kit while, main as Sonic
+ㅤ☆ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow, Helen, [**SYN**](https://fkin.carrd.co/#two) as Kit, main as Sonic
 \
 ㅤ☆ㅤMy discord + other are hidden
