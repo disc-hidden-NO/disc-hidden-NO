@@ -6,8 +6,8 @@
 \
 ㅤ☆ㅤCHECKOUT MY SNTRY.CC BEFORE READING MY TERMS IN PRONOUNS.CC!
 \
-ㅤ☆ㅤMDD, AUDHD, and paranoia not kindly IRLs or fictionkin
+ㅤ☆ㅤMDD, AUDHD, and moderate paranoia
 \
-ㅤ☆ㅤCorrespond [**kinmem**](https://fkin.carrd.co/#two) as Shadow and [**syn**](https://fkin.carrd.co/#two) as Kit, main to Sonic
+ㅤ☆ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow and [**SYN**](https://fkin.carrd.co/#two) as Kit, main or fronting Sonic
 \
 ㅤ☆ㅤMy discord plus other are hidden
