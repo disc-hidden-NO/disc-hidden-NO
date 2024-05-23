@@ -6,6 +6,6 @@
 \
 ㅤㅤㅤㅤCHECKOUT MY [**SNTRY.CC**](https://sntry.cc/arthursonix) BEFORE READING MY TERMS IN PRONOUNS.CC!
 \
-ㅤㅤㅤㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow and [**SYN**](https://fkin.carrd.co/#two) as Kit, main or fronting Sonic
+ㅤㅤㅤㅤ𑁘୧ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow and [**SYN**](https://fkin.carrd.co/#two) as Kit, main or fronting Sonic
 \
 ㅤㅤㅤㅤMy discord plus other are hidden
