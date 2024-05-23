@@ -4,10 +4,10 @@
 
 ㅤ☆ㅤCall me Furu or ferulic grass! I made a [**replit**](https://replit.com/@sebastiansis/twinkl)
 \
-ㅤ☆ㅤCHECKOUT MY SNTRY.CC BEFORE READING MY TERMS IN PRNS.CC AKA PRONOUNS.CC!
+ㅤ☆ㅤCHECKOUT MY SNTRY.CC BEFORE READING MY TERMS IN PRONOUNS.CC!
 \
 ㅤ☆ㅤMDD, AUDHD, and paranoia not kindly IRLs!
 \
-ㅤ☆ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow, Helen, [**SYN**](https://fkin.carrd.co/#two) as Kit, main as Sonic
+ㅤ☆ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow, Helen, [**SYN**](https://fkin.carrd.co/#two) as Kit, main or fronting to Sonic
 \
 ㅤ☆ㅤMy discord + other are hidden
