@@ -4,9 +4,9 @@
 
 ㅤ☆ㅤCall me Furu or ferulic grass! I made a [**replit**](https://replit.com/@sebastiansis/twinkl)
 \
-ㅤ☆ㅤCHECKOUT MY SNTRY.CC BEFORE READING MY TERMS IN PRONOUNS.CC!
+ㅤ☆ㅤCHECKOUT MY SNTRY.CC BEFORE READING MY TERMS IN PRNS.CC OR PRONOUNS.CC!
 \
-ㅤ☆ㅤMDD, AUDHD, and moderate paranoia
+ㅤ☆ㅤMDD, AUDHD, paranoia
 \
 ㅤ☆ㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow and [**SYN**](https://fkin.carrd.co/#two) as Kit, main or fronting Sonic
 \
