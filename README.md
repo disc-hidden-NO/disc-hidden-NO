@@ -4,6 +4,6 @@
 
 ㅤㅤㅤㅤFuru or ferulic grassㅤ ☆ㅤ I made [**replit**](https://replit.com/@sebastiansis/twinkl)! AUDHD MDD paranoia
 
-ㅤㅤㅤㅤ୨୧ㅤ Checkout .cc/arthursonix to get my pronouns cc, my discord + other is NO!
+ㅤㅤㅤㅤ୨୧ㅤ Checkout .cc/arthursonix to get my pronouns cc, .cc/words2furu sign retrospring
 
-ㅤㅤㅤㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow, Kitsunami, [**coping**](https://fkin.carrd.co/#two) or fronting as Sonic
+ㅤㅤㅤㅤ[**KINMEM**](https://fkin.carrd.co/#two) as Shadow, Kitsunami, [**coping**](https://fkin.carrd.co/#two) or fronting as Sonic! my discord + other NO.
