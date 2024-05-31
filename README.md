@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/Zksm3X9ssmyz7mne/Untitled93_20240521195109.png"<width="199" height="199">
+<img src="https://file.garden/Zksm3X9ssmyz7mne/crk-sonic.gif"<width="190" height="190">
 </p>
 
 ㅤㅤㅤㅤFuru or ferulic grassㅤ ★ㅤ I made [**replit**](https://replit.com/@sebastiansis/twinkl)! Sonic Shadow #1 kinmem
