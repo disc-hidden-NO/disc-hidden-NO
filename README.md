@@ -5,7 +5,11 @@
 </p>
 
 - tags i use
+
 > DNIUF = do not interact unless friends
+\
 > DNI = do not interact
+\
 > WIP = work in progress
+\
 > AFK = away from keyboard
