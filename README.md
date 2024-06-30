@@ -9,7 +9,3 @@
 <p align="center">
   DNIUF = Do not interact unless friends <br> My github is videogame related <br> I'M ON PONYTOWN SONIC AREAA
 </p>
-
-<p align="center">
-  <img src="https://file.garden/Zksm3X9ssmyz7mne/IMG_20240629_182303.jpg">
-</p>
